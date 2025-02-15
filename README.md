@@ -8,7 +8,7 @@
 
 👉👉 Click to play，3rd Version: [Sprunki Phase 7 Original](https://sprunkipyramixed.com/sprunki-phase-7-original/ "Sprunki Phase 7 Original")
 
-Dive into the vibrant world of [ Sprunki](https://sprunkipyramixed.com/sprunki-phase-7-original/#) Phase 7 Original - a puzzle game where strategic depth meets innovative gameplay!
+Dive into the vibrant world of Sprunki Phase 7 Original - a puzzle game where strategic depth meets innovative gameplay!
 
 Sprunki Phase 7 Original redefines puzzle gaming with energy-based entities called Sprunkis. Navigate through intricate levels using their unique abilities.
 
