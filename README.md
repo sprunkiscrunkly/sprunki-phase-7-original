@@ -84,7 +84,7 @@ Sprunki Phase 7 Original is an innovative puzzle game that challenges players wi
 
 ### How do I play Sprunki Phase 7 Original?
 
-In [ Sprunki](https://sprunkipyramixed.com/sprunki-phase-7-original/#) Phase 7 Original, you select Sprunkis, plan your strategies, and solve puzzles. Each Sprunki adds different elements to your gameplay.
+In Sprunki Phase 7 Original, you select Sprunkis, plan your strategies, and solve puzzles. Each Sprunki adds different elements to your gameplay.
 
 ### What makes Sprunki Phase 7 Original special?
 
